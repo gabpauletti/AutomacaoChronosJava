@@ -1,0 +1,2 @@
+*curso automação amamos bjjj oi mo
+amooooooooooooooooooooooooooooooooooo
